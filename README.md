@@ -1,4 +1,4 @@
-# 👋 Hey, I'm [drost benj]!
+# 👋 Hey, I'm drost benj
 
 ## 🚀 About Me
 Creative thinker with a passion for **designing innovative solutions** and **building beautiful, functional experiences**. I thrive at the intersection of **fashion** and **technology**, where I craft ideas that not only look good but make a real impact.
